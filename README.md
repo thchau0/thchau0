@@ -11,7 +11,7 @@ Here are some ideas to get you started:
 -->
 - 🤔 I’m looking for help with money support
 - 💬 Don't ask me. Or maybe you can ask google.
-- 📫 How to reach me: Thinking
+- 📫 How to reach me: If the timing is right, you will see me.
 - 😄 Pronouns: I, you, we, they, he, she, it
 - ⚡ Fun fact: I'm not funny at all.
 
